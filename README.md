@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @n17x
 - 👀 I’m interested in Codingggggg
 - 🌱 I’m currently learning C++
-- 💞️ I’m looking to collaborate on any projects available
+- ⛈️ I’m looking to collaborate on any projects available
 - 📫 How to reach me @sanxtions on twitter
